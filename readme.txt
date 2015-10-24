@@ -1,0 +1,1 @@
+Jakis readme jako tekst
